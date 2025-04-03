@@ -1,1 +1,0 @@
-Photo by <a href="https://unsplash.com/@tywayne?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Ty Carlson</a> on <a href="https://unsplash.com/photos/white-bed-by-the-window-during-daytime-I8kTKM17Ktc?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
